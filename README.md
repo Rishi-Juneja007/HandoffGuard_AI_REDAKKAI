@@ -1,0 +1,1 @@
+# HandoffGuard_AI_REDAKKAI
